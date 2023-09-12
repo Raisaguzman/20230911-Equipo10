@@ -1,5 +1,6 @@
 Raisa Guzman Anaya
 Yeraldy Villamizar Basto
+Yanina Olivera 
 Daniela Andrea Suazo
 Juan Alzate
-Yanina Lizbeth Olivera Vásquez
+
